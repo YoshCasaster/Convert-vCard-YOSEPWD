@@ -4,7 +4,6 @@
 ### Semakin direndahkan Semakin Senang.
 
 ## CONVERT TEXT TO vCARD | YosepWD
-## Tutorial: Mengambil Sandi Aplikasi Gmail
 
 1. **Open Aplikasi**
 2. **Masukan Nama dan No berawalan +62......**
