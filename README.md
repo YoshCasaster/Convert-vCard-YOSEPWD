@@ -14,4 +14,4 @@
    
 ## LINK DOWNLOAD
 
-[Download Here](https://drive.google.com/file/d/1bzg9_KsYdBMt126tWKs0R2wymYc7byBQ/view?usp=sharing)
+[Download Here](https://www.mediafire.com/file/1e4gh8yn6qsvyja/CVD.rar/file)
